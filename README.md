@@ -1,4 +1,4 @@
-Olá! Eu sou [Miguel Munarão] 👋
+[Miguel Munarão] 👋
 
 🎓 Estudante de Análise e Desenvolvimento de Sistemas no IFSP
 💻 Iniciando minha jornada na área de tecnologia
