@@ -52,6 +52,6 @@ Aqui você encontrará projetos desenvolvidos durante meus estudos, desde exerc�
 
 Busco uma oportunidade de estágio ou posição de entrada na área de tecnologia, onde possa aplicar meus conhecimentos, aprender com profissionais experientes e contribuir para projetos reais.
 
-📫 Contato: [contatomiguelmunarao@gmail.com]
+📫 Contato: [miguelmunarao220@gmail.com]
 
 🔗 LinkedIn: [www.linkedin.com/in/miguel-munarão1]
